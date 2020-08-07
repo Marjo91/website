@@ -31,8 +31,8 @@
 
       Marjo Dennis Reyna Sánchez
 
-Gracias por Visitar agradecería tu comentario 🎁
-Canal Youtube "iMarjo" 📢
-Recuerda Invitar una cerveza 🍺 o un café ☕ a un Ingeniero.
+     Gracias por Visitar agradecería tu comentario 🎁
+     Canal Youtube "iMarjo" 📢
+     Recuerda Invitar una cerveza 🍺 o un café ☕ a un Ingeniero.
 
-⌨️ con ❤️ Marjo Reyna 😊
+     ⌨️ con ❤️ Marjo Reyna 😊
