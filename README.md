@@ -1,4 +1,4 @@
-Web Coronavirus
+             WEB CORONAVIRUS
 
 Aprende a Crear y Diseñar paginas Web con HTML, CSS , Slider y más
 y de paso ve como puedes protegerte a tí mismo y a los demás del virus que causa el COVID-19.
